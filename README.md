@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on innovative tech projects.  
 - 📫 How to reach me: (mailto:kaushikbhowmick108@gmail.com)  
 - 😄 Pronouns: He/Him  
-- ⚡ Fun fact: I’m a Level 6 Google Maps Local Guide and love blending tech with loacl businesss!
+- ⚡ Fun fact: I’m a Level 6 Google Maps Local Guide and love blending tech with local businesss!
 
