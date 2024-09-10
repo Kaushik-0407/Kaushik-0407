@@ -1,4 +1,4 @@
-👋 Hi, I’m @Kaushik Bhowmick  
+👋 Hi, I’m Kaushik Bhowmick  
 - 👀 I’m interested in technology, software development.  
 - 🌱 I’m currently learning advanced web development and exploring cloud technologies.  
 - 💞️ I’m looking to collaborate on innovative tech projects.  
